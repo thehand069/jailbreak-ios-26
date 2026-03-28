@@ -1,3 +1,4 @@
+
 # How to Jailbreak iOS 26 beta 9 - Possibilities, Alternatives, Solutions, unc0ver, fugu, palera1n Compatibility
 
 iOS 17 to iOS 26 Beta 7 Migration: How to Jailbreak iOS 26 & Its Beta, Possibilities, Step-by-Step Guide, Jailbreak Solutions, Tweaks, Cydia & Sileo Installation.
